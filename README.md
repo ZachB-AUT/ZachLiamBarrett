@@ -1,4 +1,4 @@
-Current engineering student at Auckland University of technology.
+Current engineering student at Auckland University of Technology.
 If for whatever reason you want to contact me, send me an email or something.
 
 
